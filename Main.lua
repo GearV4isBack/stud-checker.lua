@@ -1,1 +1,0 @@
-https://cdn.discordapp.com/attachments/1392618458222694410/1410707767408459929/IMG_2550-removebg-preview.png?ex=68b1ff7d&is=68b0adfd&hm=1b98f1606907e6c1e97f04e63856c3211486c3b6449f3defd2a12cd726240b8d&
